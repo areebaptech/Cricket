@@ -1,2 +1,2 @@
 # Cricket
-cricket is my favourite game.
+cricket is my favourite game and hobby.
